@@ -2,8 +2,8 @@
 
 ## Studii
 
-Liceu Mihail Berezovschi
-CUTM
+Liceu Mihail Berezovschi   
+CUTM  
 
 ## Hobby
 
