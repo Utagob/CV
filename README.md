@@ -10,6 +10,7 @@ CUTM
 3D-modeling  
 Programing  
 Music  
+Movie  
 
 ## Cursuri extracuriculare
 
