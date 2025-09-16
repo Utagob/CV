@@ -7,7 +7,9 @@ CUTM
 
 ## Hobby
 
-3D-modeling
+3D-modeling  
+Programing  
+Music  
 
 ## Cursuri extracuriculare
 
