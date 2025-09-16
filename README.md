@@ -18,3 +18,6 @@ IT Academi.
 Enleza C1
 
 Hello to everyone
+
+__Social Media:__
+Discord
